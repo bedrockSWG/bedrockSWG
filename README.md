@@ -18,3 +18,5 @@ kurwa ja pierdole,,,,,,,,,
 [![](https://readme-typing-svg.demolab.com?font=Unbounded&size=14&duration=1&pause=1&color=F3EEEB&multiline=true&repeat=false&width=150&height=20&lines=%40user-aW6shiiIIit)](https://github.com/user-aW6shiiIIit)
 
 </div>
+<br>
+<br>
