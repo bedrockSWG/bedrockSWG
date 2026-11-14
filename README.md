@@ -1,36 +1,20 @@
 <!---
 kurwa ja pierdole,,,,,,,,,
 <!--->
-
-<br>
-<br>
-<br>
-<img align="right" src="https://github.com/user-attachments/assets/d2b706ea-f87a-46ff-852d-46588b262f83" width="370" title="art cred @eutasstar on twitt" />
-<br>
-<br>
-<br>
 <br>
 <br>
 <br>
 <div align="center">
 
-$\color{#b11700}{\textsf{⸝⸝ }}$ $\color{#b11700}{\textsf{bedr}}\color{#d9d4bd}{\textsf{ock }}\color{#b11700}{\textsf{ or }}\color{#b11700}{\textsf{ t}}\color{#d9d4bd}{\textsf{om}}$ <br>
-$\color{#b11700}{\textsf{¹⁸}}\color{#d9d4bd}{\textsf{oct‎ ‎ ‎ }}$ $\color{#b11700}{\textsf{彡}}$ $\color{#b11700}{\textsf{‎ ‎ ‎ ‎ i}}\color{#d9d4bd}{\textsf{stp}}\color{#d9d4bd}{\textsf{ 5}}\color{#b11700}{\textsf{w}}\color{#d9d4bd}{\textsf{6}}$<br>
-$\color{#d9d4bd}{\textsf{‎do NOT }}\color{#b11700}{\textsf{c+h}}\color{#d9d4bd}{\textsf{ please}}$
+![](https://readme-typing-svg.demolab.com?font=Unbounded&size=14&duration=1&pause=1&color=F3EEEB&multiline=true&repeat=false&width=440&height=20&lines=%D1%85%D0%BE%D1%87%D0%B5%D1%82%D1%81%D1%8F+%D0%BF%D0%B0%D0%B4%D0%B0%D1%82%D1%8C+%D0%BA+%D1%82%D0%B2%D0%BE%D0%B8%D0%BC+%D0%BD%D0%BE%D0%B3%D0%B0%D0%BC%2C+%D0%BF%D1%83%D1%81%D1%82%D1%8C+%D1%8D%D1%82%D0%BE+%D0%B1%D1%83%D0%B4%D0%B5%D1%82+%D1%82%D0%B0%D0%BA+)
 
-[![](https://img.shields.io/badge/rentry-b11700)](https://rentry.co/BLYATyful)
+<img src="https://github.com/user-attachments/assets/0481156a-f20f-4f38-bc1f-bf4ef0dea8a7" width="550" title="art cred @odang_gkv on twitt" />
+
+![](https://readme-typing-svg.demolab.com?font=Unbounded&size=14&duration=1&pause=1&color=F3EEEB&multiline=true&repeat=false&width=330&height=20&lines=%D1%8F+%D1%80%D0%B0%D0%BD%D0%B5%D0%BD+%D0%BD%D0%B0%D0%B2%D1%8B%D0%BB%D0%B5%D1%82%2C+%D0%BA%D0%BE%D0%BC%D1%83+%D1%8F+%D1%82%D0%B5%D0%BF%D0%B5%D1%80%D1%8C+%D1%82%D0%B0%D0%BA%D0%BE%D0%B9%3F)
+
+  [![](https://img.shields.io/badge/rentry-f3eeeb)](https://rentry.co/BLYATyful)
+
+![](https://readme-typing-svg.demolab.com?font=Unbounded&size=14&duration=1&pause=1&color=F3EEEB&multiline=true&repeat=false&height=20&lines=%D1%8F+%D1%80%D0%B6%D0%B0%D0%B2%D0%B0%D1%8F+%D0%B3%D0%B8%D0%BB%D1%8C%D0%B7%D0%B0%2C+%D1%82%D1%8B+%D0%BB%D1%8E%D0%B1%D0%B8%D1%82%D0%B5%D0%BB%D1%8C+%D0%B8%D0%B4%D1%82%D0%B8+%D0%BD%D0%B0+%D1%80%D0%BE%D0%B6%D0%BE%D0%BD)
+[![](https://readme-typing-svg.demolab.com?font=Unbounded&size=14&duration=1&pause=1&color=F3EEEB&multiline=true&repeat=false&width=150&height=20&lines=%40user-aW6shiiIIit)](https://github.com/user-aW6shiiIIit)
 
 </div>
-<br>
-<br>
-<br>
-<br>
-
-<div align="center">
-  
-  $\color{#b11700}{\textsf{my gang}}$
-  
-</div>
-
-[<img align="left" src="https://github.com/user-attachments/assets/dfa2c57a-ec81-4349-922a-8ff6734d25ce" width="185" title="click" />](https://github.com/CASSIOquo)‎
-[<img align="right" src="https://github.com/user-attachments/assets/2adf3b27-26d8-4b23-a590-4b1e9b75a0c4" width="195" title="click" />](https://github.com/user-aW6shiiIIit)
